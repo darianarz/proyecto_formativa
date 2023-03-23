@@ -1,1 +1,1 @@
-# proyecto_formativa
+# proyecto_formativo
